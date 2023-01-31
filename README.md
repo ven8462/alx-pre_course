@@ -1,1 +1,1 @@
-I'm excited for this project
+this project is amazing!
