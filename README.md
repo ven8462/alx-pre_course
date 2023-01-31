@@ -1,1 +1,1 @@
-My first readme
+I'm excited for this project
